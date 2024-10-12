@@ -1,2 +1,2 @@
-This should be my lastet CV.
-Please only use and download for appropriate purposes. 
+This should be my latest CV.
+Please only use and download for appropriate/professional purposes. 
